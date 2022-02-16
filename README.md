@@ -11,8 +11,6 @@ International cooperation has resulted in a large set of agreements and treaties
 
 ### Results Thus Far
 * Publication on the initial dataset: [Regional Public Goods Cooperation: An Inductive Approach to Measuring Regional Public Goods](https://www.routledge.com/21st-Century-Cooperation-Regional-Public-Goods-Global-Governance-and/Estevadeordal-Goodman/p/book/9780367595098)
-* Contribution to additional publication: [Reshaping Global Order in the 21st Century: G-Plus Leadership in a Multiplex World](https://onlinelibrary.wiley.com/doi/full/10.1111/cwe.12300)
-
 
 
 
